@@ -1,4 +1,4 @@
-Terms of Services (ToS)
+Terms of Services (ToS
 
 Effective Date: 31 October 2024
 1. Introduction
